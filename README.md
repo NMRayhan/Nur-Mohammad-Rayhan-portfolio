@@ -1,1 +1,0 @@
-# Nur-Mohammad-Rayhan-portfolio
